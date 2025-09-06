@@ -1,1 +1,1 @@
-case sty praveenraj S
+case study praveenraj S
